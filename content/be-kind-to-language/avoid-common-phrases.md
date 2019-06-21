@@ -13,6 +13,6 @@ In it, he warns, "Avoid pronouncing the phrases everyone else does." In SJMD, we
 
 **When there's a common phrase or jargon that regularly gets used as a shorthand for a more complicated, loaded, controversial, or misunderstood concept, don't use it.**
 
-We're going to avoid the jargon. Avoid the common phrases. Instead, we're going to say what we mean.
+We're going to avoid the jargon. Avoid the common phrases. Instead, we're going to say what we mean. This is might be new and even counter to a lot of social justice conversations we've had in the past. For a lot of us part of our social justice education was understanding jargon, being able to hear words like neoliberal, capitalist, heterosexistpatriarchy, and use them was part of what it mean to be in these conversations. Here we're going to see what can happen when we leave the jargon out and say what we mean directly. 
 
-**What should be on our blacklist?**
+**What jargon comes to mind for you?**
